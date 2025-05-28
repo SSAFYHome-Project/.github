@@ -1,5 +1,5 @@
 # 🌏 지도 밖은 위험해 🌏
-- [노션 (notion)](https://invited-kookaburra-8fb.notion.site/1d2bdd006a7d803ebeeddc0defd6feb0?pvs=4)
+- [노션 (notion)](https://www.notion.so/Overview-1ffbdd006a7d807499bbf99b1bc05390?pvs=4)
   
 <br />
 
