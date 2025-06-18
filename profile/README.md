@@ -1,5 +1,6 @@
 # 🌏 지도 밖은 위험해 🌏
 - [노션 (notion)](https://www.notion.so/Overview-1ffbdd006a7d807499bbf99b1bc05390?pvs=4)
+- [발표자료](https://www.miricanvas.com/v/14ob20j)  
   
 <br />
 
